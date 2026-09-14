@@ -26,7 +26,7 @@ I speak English and Spanish and i can understand portuguesse but not talk very f
 
 Check Strawpage and sign ATA if ur a very cool person C:
 
-If u wanna know more then BMF cuz i dont remember what other cool things i have
+Fandom INT/C+H/BMF freely!
 
 ---
 
