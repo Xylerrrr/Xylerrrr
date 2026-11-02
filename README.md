@@ -42,6 +42,12 @@ cool things
 -
 I speak English and Spanish and i can understand portuguesse but not talk very fluently.
 
+Music addict
+
+epileptic ;-;
+
+I sleep talk wowow
+
 Check Strawpage and sign ATA if ur a very cool person C:
 
 Fandom INT/C+H/BMF freely!
