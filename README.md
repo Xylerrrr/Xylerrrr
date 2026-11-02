@@ -8,7 +8,11 @@
 cool drawing my friend made for me!
 
 ---
-INT PLSS AND C+H 🥺 im very friendly ok.
+Fandom INT PLSS AND C+H 🥺 im very friendly ok.
+
+If i have u added but i rarely talk to you its cuz im very shy. (im shy even with friends)
+
+Everything i say is satire or joke. dont take me seriously unless i say it is.
 
 I use He/Him Pronouns yay!
 
