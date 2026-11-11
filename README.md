@@ -1,4 +1,4 @@
-# Acc 4 PonyTown!!
+# Git acc 4 PonyTown!!
 ---
 
 
